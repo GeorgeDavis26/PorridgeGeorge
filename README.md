@@ -1,4 +1,4 @@
-- 👋 Hi, I’m George Davis (@PorridgeGeorge)
+- 👋 Hi, I’m George Davis (@GeorgeDavis26)
 - I am an Electrical Engineering Major at Harvey Mudd College
 
 - Reach me at: gdavis@hmc.edu or georgeswdavis@gmail.com
